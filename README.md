@@ -1,1 +1,0 @@
-# hack_moscow_trash
